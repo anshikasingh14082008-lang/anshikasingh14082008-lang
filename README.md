@@ -42,4 +42,4 @@
 
 - GitHub: https://github.com/anshikasingh14082008-lang
 - Email: anshikasingh.14082008@gmail.com
-- LinkedIn: [Add your LinkedIn URL]
+- LinkedIn: [https://www.linkedin.com/in/anshika-singh-283254435/](https://www.linkedin.com/in/anshika-singh-283254435/)
